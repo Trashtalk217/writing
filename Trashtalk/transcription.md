@@ -61,7 +61,7 @@ I: Yes, and we would like to know what happened to it. I mean, it wasn't the gol
 S: I guess so. That's strange.  
 I: And here's the kicker. We've talked to a lot of your friends, and while quite a few were too drunk at the time. A few of your friends told me that you 'ate' the bridge.  
 S: I don't believe you. Who told you that I 'ate' a bridge.  
-I: Well, We've interviewed all of your friends, and while Eduardo, Dirk and Eliza didn't recall anything specific. Daniel mentioned something along the lines of "Sam claimed he could eat a bridge." And Sarah said that she actually saw you do it. And I've come to understand that Sarah doesn't drink.
+I: Well, We've interviewed all of your friends, and while Eduardo, Dirk and Eliza didn't recall anything specific. Daniel mentioned something along the lines of "Sam claimed he could eat a bridge." And Sarah said that she actually saw you do it. And I've come to understand that Sarah doesn't drink.  
 S: No, she doesn't. When it comes to these sorts of things I often trust her more than myself, but this is just too weird.  
 I: What about Daniel?  
 S: He's reliable enough, but he wasn't sober at that party, that much I can remember.  
