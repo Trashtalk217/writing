@@ -33,20 +33,19 @@ But when Aleisha entered that room, it was filled with eight people including he
 They sat around a white plastic table, you usually see outside in gardens, on folding plastic seats Aaron had probably 'borrowed' from one of the storage rooms nearby. 
 One chair was still vacant and after Aleisha sat down, the first meeting of the Magic Meerkats was official.
 
-The first dozen or so of these meetings were shrouded in mystery. 
+The meetings were shrouded in mystery. 
 No secretary, no bullet-points, and the members generally didn't tell any outsiders. 
 Never spoil the trick; that's the first rule of magic. 
 But they didn't completely operate in secret, because very early on they decided to hold a yearly stunt. 
 At the end of the school year, they'd perform a magic trick for everyone in the building. 
-And while Aleisha first viewed this idea with a healthy dose of "I am not sure if we can pull this off "-doubt.  
-When that day came, she truly believed, no, *knew* that it was going to be something special.
+And while Aleisha first viewed this idea with a healthy dose of "I am not sure if we can pull this off "-doubt, when that day came, she truly believed, no, *knew* that it was going to be something special.
 
 The first year was the year of levitation. 
-One of the Meerkats, Sarah, was levitated twenty inches above the podium that oversaw the auditorium. 
+One of the Meerkats, Sarah, was levitated ten inches above the podium that oversaw the auditorium. 
 Aaron, who else, presented the spectacle in a manner only he could get away with. 
 He indeed used a cape. 
 But besides Aaron's complete disregard for fashion, the show went alright. 
-Sarah hung up there for a good five minutes while Aaron talked about something to do with 'chakras' and 'thinking lightly'. 
+Sarah floated in place for a good five minutes while Aaron talked about something to do with 'chakras' and 'thinking lightly'. 
 They managed to borrow a smoke machine for that extra bit of drama. 
 And Aaron even did that hoop-thing, to show that there were no wires involved.
 
@@ -55,4 +54,5 @@ And Aleisha was glad to be part of it, even though she mostly worked in the back
 Because the club meant way more to Aleisha and the Meerkats then just those yearly shows. 
 They met weekly. 
 The friendships they made were probably the most special thing to ever come out of the club. 
+
 And then highschool ended.
