@@ -12,7 +12,7 @@ Work is not the only thing I do, however. I try to maintain some semblance of a 
 
 That's a classic misconception. Alchemy, although it does somewhat depend on your definition of alchemy, is practiced all over Eurasia and Africa. Yes, the aesthetic commonly associated with alchemy is very much Western European. Think of the purification of elements, the search for the philosopher's stone and turning lead to gold.
 
-**I don't mean to be rude, but you just said that 'alchemy is practiced all over Eurasia and Africa. Is alchemy still practiced today?**
+**I don't mean to be rude, but you just said that alchemy is practiced all over Eurasia and Africa. Is alchemy still practiced today?**
 
 Again, that depends on your definition. Alchemy is related to things like natural medicine and while modern medicine made great strides over the last couple of centuries. Natural medicine is still widely used today. I will agree on one thing, however. The archetypal alchemy I just described is as good as dead. But, and this is the Exceptional part of this story, it's not dead for the reason you might think of.
 
@@ -24,13 +24,13 @@ Someone solved it. Alicia Braucher to be more specific. She was the daughter of 
 
 Exactly. Alicia also found a method for creating a philosopher's stone. She even managed to rediscover the creation process of Damascus steel. Although those discoveries happened later, at 20 and 21 respectively.
 
-The thing is, many alchemists at that time were more interested process then the result. So when Alicia published her results, under a pen name naturally. Many of the people in the field were discouraged from pursuing their research any further.
+The thing is, many alchemists of her time were more interested in the process then the result. So when Alicia published her results, under a pen name naturally. Many of the people in the field were discouraged from pursuing their research any further.
 
 Her results weren't republished and a lot of the leading alchemists in their day went on to different endeavors. The limited first publishing - I'm liberally using the word publishing here, you wouldn't see these papers in bookshops - and the fact that she was, you know, a woman, meant that her story wasn't picked up by history. 
 
 **But what about her discoveries. She must've gotten obscenely wealthy thanks to her discoveries.**
 
-She was the daughter of a nobleman: she already was obscenely wealthy. And the philosopher's stone, that's a fascinating story. It turns out that the rejuvenating effect has been slightly overstated over the last couple of centuries. A daily dosage of the extract has been shown to increase life expectancy by five years on average. That's nothing to scoff at, but because the fabrication of the stone requires quite a bit of mercury, it doesn't do much for your health unless you filter that out.
+She was the daughter of a nobleman: she already was obscenely wealthy. And the philosopher's stone, that's a fascinating story. It turns out that the rejuvenating effect has been slightly overstated over the last couple of centuries. A daily dosage of the extract has been shown to increase life expectancy by an average of five years. That's nothing to scoff at, but because the fabrication of the stone requires quite a bit of mercury, it doesn't do much for your health unless you filter that out.
 
 **Are her results used today?**
 
