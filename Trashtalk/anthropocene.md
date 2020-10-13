@@ -11,7 +11,7 @@ As of writing, very considerable people and their organizations don't officially
 But it has seen widespread use in pop culture nonetheless.  
 
 An avid proponent of this word, professor John Johnson, started giving 'Introduction to the Anthropocene' in 1990. 
-The course examines the multiple ways humans have changed and shaped the environment they inhabit. 
+The course examines the multiple ways humans have changed and shaped the environments they inhabit. 
 The course covers, among other things, Aboriginal fire-stick farming, Dutch land reclamation, and, of course, man-made climate change.  
 
 John Johnson has since retired and his daughter, Amy Johnson, is the current lecturer for the course. 
