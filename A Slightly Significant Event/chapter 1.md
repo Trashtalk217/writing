@@ -3,7 +3,7 @@
 ## Chapter 1: The Magic Meerkats
 
 There were many reasons to leave the town Aleisha grew up in, but her friends were not among them.
-The club was started years ago by Aaron, who was, in his own words, 'an aficionado de la mystique'. 
+The club was started years ago by Aaron, who was, in his own words, 'an aficionado de la mystique.'
 He had gotten a magician set for his eighth birthday and since then the whole magician persona was kind of his 'thing'. 
 In the beginning, this meant a lot of card tricks, to the annoyance of all involved. Later he graduated to sleight of hand tricks and impossible games. 
 Games that seemed impossible to win, except if you used a very specific strategy, which of course Aaron memorized. 
@@ -40,19 +40,54 @@ But they didn't completely operate in secret, because very early on they decided
 At the end of the school year, they'd perform a magic trick for everyone in the building. 
 And while Aleisha first viewed this idea with a healthy dose of "I am not sure if we can pull this off "-doubt, when that day came, she truly believed, no, *knew* that it was going to be something special.
 
-The first year was the year of levitation. 
+The first year was the Year of Levitation. 
 One of the Meerkats, Sarah, was levitated ten inches above the podium that oversaw the auditorium. 
 Aaron, who else, presented the spectacle in a manner only he could get away with. 
 He indeed used a cape. 
 But besides Aaron's complete disregard for fashion, the show went alright. 
-Sarah floated in place for a good five minutes while Aaron talked about something to do with 'chakras' and 'thinking lightly'. 
+Sarah floated in place for a good five minutes while Aaron talked about something to do with 'chakras' and 'thinking lightly.'
 They managed to borrow a smoke machine for that extra bit of drama. 
 And Aaron even did that hoop-thing, to show that there were no wires involved.
 
 The shows were something special. 
 And Aleisha was glad to be part of it, even though she mostly worked in the background. 
-Because the club meant way more to Aleisha and the Meerkats then just those yearly shows. 
+Because the club meant way more to Aleisha and the Meerkats than just those yearly shows. 
 They met weekly. 
 The friendships they made were probably the most special thing to ever come out of the club. 
 
-And then highschool ended.
+And then highschool ended. 
+Not all at once, but it did end.
+
+Aleisha, Sarah, and another boy called Dennis were the first members to finish school.
+Aleisha took a gap year, Sarah went to a local community college and Dennis signed up for two hundred reality tv-programs and spent his time doing that.
+Aleisha was also surprised when she heard about that.
+It turns out to be a well-paying job once you get in.
+It certainly paid better than whatever Aleisha was earning at the local bistro she worked at.
+
+Aaron had to redo a year as calculus turned out to be too arcane even for him.
+It did mean that he was able to present one extra show, the Year of Teleportation.
+Yes, it was exactly as cool as it sounds, and Aleisha was there.
+She had helped with a part of the setup and knew some of the behind the scenes, yet presentation is key with these things.
+After the performance concluded, she was left with an overwhelming feeling of wonder, excitement, and disappointment.
+Disappointment because it almost started to look like she had peaked in high school, which is objectively one of the saddest fates anyone can experience.
+
+She talked to Aaron about this after the show, when the Magic Meerkats were left alone to clean-up.
+
+"What are you doing after this?" she asked.  
+"I've been looking for magician schools and there aren't that many," Aaron replied.  
+"Have you tried Hogwarts?" Aleisha proposed.  
+"No, but I did join a magician ring."  
+"Oh yeah, you told me about that: the International Brotherhood of Magicians," she said, "It's an excellent name."  
+"It sure is, but I don't think I can stay here. This is not exactly the place where I can get my big break." Aaron said, broadly gesturing at the auditorium which was demystified by the bright fluorescent tubes.  
+"I suppose so. How far are you moving?"  
+"I was thinking of Las Vegas, but that might be short-sighted," he said.  
+
+Many people would call his career path short-sighted in its entirety, but Aleisha appreciated it's non-conventionalness. 
+If it's stupid and it works, it isn't stupid.
+
+"Chicago?"  
+"Probably, I'm still figuring it out. What are you going to do this summer?"  
+"I honestly got no clue. Maybe just work," she said, neglecting to tell Aaron about the promotion she recently received.  
+It didn't feel very important.  
+
+Aaron simply hummed in confirmation.  
