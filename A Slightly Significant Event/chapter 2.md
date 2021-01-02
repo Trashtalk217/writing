@@ -110,7 +110,7 @@ Aleisha had provided the initial idea for the plan, while Sarah and Dan critique
 The only thing they hadn't decided on was the person responsible for the delivery, the execution.
 Aaron would've done it in a heartbeat if it weren't for the fact that he was too well known in Dan's household.
 Dan couldn't do it for obvious reasons, leaving only Sarah and Aleisha.
-The method with which they made the final decision was highly scientific: Rock paper scissors and the winner got to chose.
+The method with which they made the final decision was highly scientific: Rock paper scissors and the winner got to choose.
 
 Sarah came out on top with paper.
 "Damn it, I hoped you'd win," she said, "I don't want to unload this onto you."
@@ -126,4 +126,4 @@ He didn't look so confident, but he was thoroughly enjoying the moment.
 
 There was one last idea that afternoon. A small one, but it might've made the difference.
 
-"Dress conservatively," Dan finally said, before walking over to his mom who was weighting in the car.
+"Dress conservatively," Dan finally said, before walking over to his mom who was waiting in the car.
