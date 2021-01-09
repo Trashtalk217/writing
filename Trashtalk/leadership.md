@@ -1,4 +1,4 @@
-# The Basics for Leadership# 
+# The Basics for Leadership
 
 When politicians are elected, they are exceptionally good at a select few things.
 The big one is rhetoric.
